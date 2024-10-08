@@ -1,6 +1,15 @@
 # Viral-online-İstanbul Fatih'te kan donduran vahşe İki kadını öldürüp surlardan atladı-telegram 
 
 
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+📺📱👉◄◄🔴  https://tinyurl.com/3namhbm4
+
+
 Fatih'te surlardan atlayarak intihar eden şüphelinin, öncesinde 2 kadını öldürdüğü belirlendi
 Fatih'te surlardan atlayarak intihar eden şüphelinin, öncesinde iki ayrı ilçede iki kadını öldürdüğü tespit edildi.
 Erol Değirmenci, Emrah Gökmen, Başak Akbulut Yazar  |
